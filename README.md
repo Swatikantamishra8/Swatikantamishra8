@@ -1,4 +1,4 @@
-# Swati Kanta Mishra (AJ)
+# Swati Kanta Mishra
 
 **Lead Systems Architect • Database & Systems Engineer • Academic Researcher**  
 *Berhampur, Odisha, India • [Email](mailto:swatikantamishra@gmail.com) • [LinkedIn](https://linkedin.com/in/swatikantamishra) • [GitHub](https://github.com/Swatikantamishra8)*
